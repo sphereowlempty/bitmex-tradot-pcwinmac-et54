@@ -1,4 +1,4 @@
-# 
+# Professional bitmex trading bot tools for Mac OS | Elite bitmex trading bot tools for PC Windows. Featuring decentralized exchange api and futures trading — optimized for maximum performance.
 
 
 
